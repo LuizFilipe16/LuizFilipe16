@@ -21,6 +21,6 @@
 
 👨🏻‍💻 "Entre desafios, bugs e commits, sigo aprendendo e evoluindo."
 
-✝️ Is 41:10
+✝️ "Não temas, porque eu sou contigo; não te assombres, porque eu sou teu Deus; eu te fortaleço e te ajudo, e te sustento com a destra da minha justiça" ~ Is 41:10
 
 </br>
